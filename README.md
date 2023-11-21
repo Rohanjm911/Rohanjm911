@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rohanjm911
+- 👋 Hi, I’m Rohan Jm
 - 👀 I’m interested in gaming 
 - 🌱 I’m currently pursuing btech    degree ( on sharnbasava University, klb)
 - 💞️ I’m looking to collaborate on (sorry i'm not instrested right now )
