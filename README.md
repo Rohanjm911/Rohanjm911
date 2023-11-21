@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Rohanjm911
 - 👀 I’m interested in gaming 
-- 🌱 I’m currently learning puc 1st year
+- 🌱 I’m currently pursuing btech    degree 
 - 💞️ I’m looking to collaborate on (sorry i'm not instrested right now )
 - 📫 How to reach me ... Rohanjm911@gmail.com
 
